@@ -14,4 +14,4 @@ step 5 : add tokens and all that and customize and your set!
 
 
 
-if you want my open source payed one which includes a ton of features dm me on discord or telegram https://t.me/fbibombing   discord - fbibombing  includes vanity and prune members and other stuff you can do :) so dm me for any offers! and ill also show ss and clips if u need! (lowest im going to go is 1$ IN CRYPTO)
+if you want my open source payed one which includes a ton of features dm me on discord or telegram https://t.me/fbibombing   discord - cwtepwinkbwnni (dont ask)  includes vanity and prune members and other stuff you can do :) so dm me for any offers! and ill also show ss and clips if u need! (lowest im going to go is 1$ IN CRYPTO)
